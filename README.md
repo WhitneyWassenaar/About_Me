@@ -18,7 +18,7 @@ This repository is for practicing the GitHub Flow.
   I was a truck driver for 4 years. In those years I learnt a lot about myself and how to deal with different circumstances. 
   When I wanted to get my Truck driving license, most of the people who knew I was going for that license thought I couldn't  do that because I was a young small creative girl ( I was 22 ).
   With my experience in my previous workfield I found out that (heavy) physical work is not meant for me. Also monotonous work bores me. 
-  I'll never go against my biorhythm again (starting before 7:00), that is even more harmfull to mind and body than the physical work.
+  I'll never go against my biorhythm again (starting before 6:00), that is even more harmfull to mind and body than the physical work.
   I have learnt what to accept and not to accept from other people or employers. 
   I have grown from a super shy and anxious person to a more self-confident person. 
   I'm still not where I'm supposed to be, or what I want to be. But I have learnt that change comes from taking risks or getting out of your 'not so comfort' zone.
